@@ -1,3 +1,0 @@
-bfdg
-hghh
-gyg
